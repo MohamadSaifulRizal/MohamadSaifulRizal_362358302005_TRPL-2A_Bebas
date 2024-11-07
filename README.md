@@ -70,3 +70,7 @@ Mohmad Saiful Rizal
 362358302005
 
 Teknologi Rekayasa Perangkat Lunak 2A
+
+![Screenshot 2024-11-06 211423](https://github.com/user-attachments/assets/9b576c07-a1cc-4779-8987-5b2f366e38f3)
+
+![image](https://github.com/user-attachments/assets/76545422-5c70-49ca-99e8-0b33b33fd0a0)
